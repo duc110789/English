@@ -1,4 +1,4 @@
-***sh ... là những từ chưa nghe được sh***
+#### ... là những từ chưa nghe được
 ### VOA special English agriculture report
 Today, we have a test for you, a vocabulary quiz. The words or later to accurature.
 
