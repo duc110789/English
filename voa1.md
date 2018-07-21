@@ -1,24 +1,19 @@
 ### VOA special English agriculture report
+Today, we have a test for you, a vocabulary quiz. The words or later to accurature.
 
-Today, we have a test for you, a vocabulary quiz. The words or later to accurature. 
+We sort with two question about term for plants. Ready
 
-We sort with to question about term for plans. Ready
+First question: What do we call a plant that lives only one year or one growing season. That kind of plant is called an annual.
 
-First question: 
-What do we call a plan the leave on the one year or one rounding season. That kind of planed it call an anywhere.
-
-You can probably gets next question. 
-What do we call of plan the produces new road year after year. Plans a keep going back or called ..
+You can probably gets next question. What do we call of plan the produces new road year after year. Plans a keep going back or called ..
 
 Now we are going to ask some questions about term for like stop.
- 
-What is another name for a male cow a both, right. Well a both can just mean a male cow, they are not has produce  ..move
 
-If the animal was ...
-The name for it is what the answer at still. Next question
+What is another name for a male cow a both, right. Well a both can just mean a male cow, they are not has produce ..move
 
-What is another name for a young cow that should be easy will just said it
-A young cow is the calf. But we have special name for a young female cow is specially ... has not calf ..
+If the animal was ... The name for it is what the answer at still. Next question
+
+What is another name for a young cow that should be easy will just said it A young cow is the calf. But we have special name for a young female cow is specially ... has not calf ..
 
 What is that name the answer. I helpful maybe you new that but can you spelling this question is just for our radio listener heifer is spelled HEIFER.
 
@@ -30,8 +25,7 @@ But some people do not like to drink milk that way. So their process state if yo
 
 Milk can be may enter trees some people like see may with milk farmer sheep. Next question
 
-What do you cow a female sheep. The answer a ewe spell EWE. 
-Male sheep has a name.
+What do you cow a female sheep. The answer a ewe spell EWE. Male sheep has a name.
 
 What is it. Male is a cow ... A Lem is the sheep under a year old but What do you cow the meet farmer sheep that over year old then we collect money.
 
