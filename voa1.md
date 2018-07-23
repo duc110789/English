@@ -79,6 +79,4 @@ But what do you call a female horse that is under three? The answer: a filly.
 And the last question: What is the name for a male horse that is under four years old. A young male is a colt.
 -> và câu hỏi cuối cùng: Tên gọi con bò đực dưới 4 tuổi là gì? Con đực non gọi là colt.
 
-> So how many did you get right? If you want to take this quiz again,  
-you can find it at voaspecialenglish.com or on Facebook and Twitter at VOA Learning English.
-And that’s the VOA Special English Agriculture Report. I'm Barbara Klein.
+> So how many did you get right? If you want to take this quiz again, you can find it at voaspecialenglish.com or on Facebook and Twitter at VOA Learning English. And that’s the VOA Special English Agriculture Report. I'm Barbara Klein.
